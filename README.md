@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @FirehorS7
+- 👀 I’m interested in programming, gaming.
+- 🌱 I’m currently learning to make games
